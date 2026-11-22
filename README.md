@@ -1,1 +1,1 @@
-# ssbekele-syr.edu
+# ssbekele
